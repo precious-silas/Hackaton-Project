@@ -1,2 +1,2 @@
 # EMPLOYMENT AND LIVELIHOOD DEVELOPMENT 
-Skills and development training 
+Skills development and  training 
